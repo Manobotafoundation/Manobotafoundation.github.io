@@ -1,8 +1,7 @@
 ## মানবতা ফাউন্ডেশন এর কার্যনির্বাহী সদস্যবৃন্দ
 ![1000007369](https://github.com/Manobotafoundation/Manobotafoundation.github.io/assets/159403990/a3e71f3b-df3e-4a75-ab33-d638c2a4791d)
 
-<div align="center">
-  
+
 ## নাম : মোহাম্মদ উল্লাহ
 
 পদবী: প্রতিষ্ঠাতা পরিচালক 
