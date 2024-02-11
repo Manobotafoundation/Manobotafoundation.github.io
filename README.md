@@ -35,6 +35,21 @@
 
 
 ----------------------------------------
+![1000007769](https://github.com/Manobotafoundation/Manobotafoundation.github.io/assets/159403990/c08f6c58-8424-4ac9-b4fa-a1000deddb9c)
+
+## নাম :  মাও আলাউদ্দীন সাদী
+
+পিতা : মো: ফজলু মিয়া
+
+মাতা : জাহান আরা বেগম
+
+ঠিকানা : দশদোনা+ বাঞ্ছারামপুর,  পৌরসভা ১ নং ওয়ার্ড
+
+রক্তের গ্রুপ : A+
+
+মোবাইল নম্বর :01402185628
+
+----------------------------------------
 
 ![1000007753](https://github.com/Manobotafoundation/Manobotafoundation.github.io/assets/159403990/b5e9a0e7-78b5-4a44-8cff-498d03e750d2)
 
